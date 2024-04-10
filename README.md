@@ -1,5 +1,5 @@
 Hi! 🙃
-My name is Levshin Igor, i'm a junior DS, open for your proposals!
+My name is Levshin Igor, open for your proposals!
 
 ⚡City: Chelyabinsk
 
